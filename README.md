@@ -46,5 +46,5 @@
 
 ### 📫 Let’s Connect
 
-- [LinkedIn](tharanitharan2005)
-- [GitHub](tharanitharan2005)
+- [LinkedIn](https://www.linkedin.com/in/tharanitharan2005/)
+- [GitHub](https://github.com/Tharanitharan2005)
